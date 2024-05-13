@@ -1,0 +1,1 @@
+# aiyasartbayeva_grportfolio
